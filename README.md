@@ -1,5 +1,4 @@
 # Terrorism_Torture
-Terrorism_Torture
 
 I was poisoned over what seems to be a diplomatic dispute since working with L3Harris, bp and Northrop Grumman. This torture has inflicted much pain to my body especially brain, abdomen, and genitals. There was a chip that seemed to be embedded on my brain which tased and confused me for a while, especially while I was in Baltimore City and Tallahassee. My family also seems to be negatively impacted. We have seen our health deteriorate due to what seems to be frequency attacks and have lost my grandfather in the process. Israel, vaccines, and sexuality seems to be a theme that the messages in the RF device in my head are communicating to me. 
 
