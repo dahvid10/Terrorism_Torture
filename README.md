@@ -13,7 +13,7 @@ The conversations via the biotechnology say that this is
 - related to Kabalistic jews
 - especially related to the covid vaccine
 - a boss who stalked me while at bp
-- benghazi, ghadaffi, oil, rare earth minerals, wars around the world
+- benghazi, ghadaffi, oil, energy, rare earth minerals, wars around the world
 - corporate experiments and assasinations on unknowing employees
 
 A vagus nerve contraption seems to be in my body and is torturing me.  My teeth have now started discoloring.  It may use nanotechnology that you may be familiar with.
