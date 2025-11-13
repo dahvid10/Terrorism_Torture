@@ -18,6 +18,7 @@ The conversations via the biotechnology say that this is
 - state department
 - potential war outbreaks in east africa
 - internet of bodies
+- people's minds seem to be allowing robotic manipulation
 
 A vagus nerve contraption seems to be in my body and is torturing me.  My teeth have now started discoloring.  It may use nanotechnology that you may be familiar with.
 
