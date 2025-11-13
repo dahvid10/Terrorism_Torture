@@ -6,7 +6,8 @@ I was poisoned over what seems to be a diplomatic dispute since working with L3H
 
 The conversations via the biotechnology say that this is 
 - satanic rituals and experimentation that has been manipulating people's bodies for decades
-- related to my grandfather's odd appearance before death
+- related to my maternal grandfather's odd appearance before death
+- related to my paternal grandmother's death
 - african union coverup for someone they deem more powerful
 - a global coverup for intelligence communities and hedge funds who stole my stock screener
 - related to global syndicates for decades
