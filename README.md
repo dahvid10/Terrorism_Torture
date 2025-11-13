@@ -5,12 +5,13 @@ I am not a conspiracy theorist, truth is stranger than fiction.
 I was poisoned over what seems to be a diplomatic dispute since working with L3Harris, bp and Northrop Grumman. This torture has inflicted much pain to my body especially brain, abdomen, and genitals. There was a chip that seemed to be embedded on my brain which tased and confused me for a while, especially while I was in Baltimore City and Tallahassee. My family also seems to be negatively impacted. We have seen our health deteriorate due to what seems to be frequency attacks and have lost my grandfather in the process. Israel, vaccines, and sexuality seems to be a theme that the messages in the RF device in my head are communicating to me. My grandfather's body became emaciated before death likely due to nanotechnology and vaccines.  Since the covid vaccine mandates especially around October 2024, I noticed people's bodies morphed into wrinkled or overweight with significant decrease in muscle tone.  Nanotechnology in vaccines likely forces an outcome that has side effects especially on neurological and genetic composition of people.
 
 The conversations via the biotechnology say that this is 
-- a sort of satanic ritual/experimentation that has been manipulating people's bodies for decades
+- satanic rituals and experimentation that has been manipulating people's bodies for decades
+- related to my grandfather's odd appearance before death
 - african union coverup for someone they deem more powerful
 - a global coverup for intelligence communities and hedge funds who stole my stock screener
 - related to global syndicates for decades
 - related to Kenyan Secret Service and their tribalistic and cultic crimes
-- related to Kabalistic jews
+- related to kabalistic jews
 - especially related to the covid vaccine
 - a boss who stalked me while at bp
 - benghazi, ghadaffi, oil, energy, rare earth minerals, wars around the world
