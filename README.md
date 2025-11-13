@@ -17,6 +17,7 @@ The conversations via the biotechnology say that this is
 - corporate experiments and assasinations on unknowing employees
 - state department
 - potential war outbreaks in east africa
+- internet of bodies
 
 A vagus nerve contraption seems to be in my body and is torturing me.  My teeth have now started discoloring.  It may use nanotechnology that you may be familiar with.
 
