@@ -11,8 +11,9 @@ The conversations via the biotechnology say that this is
 - african union coverup for someone they deem more powerful
 - a global coverup for intelligence communities and hedge funds who stole my stock screener
 - related to global syndicates for decades
-- related to Kenyan Secret Service and their tribalistic and cultic crimes
+- related to kenyan secret service and their tribalistic and cultic crimes
 - related to kabalistic jews
+- gender, gene and sexuality modifications in people via frequency devices (technosorcery in kabalistic beliefs)  
 - especially related to the covid vaccine
 - a boss who stalked me while at bp
 - benghazi, ghadaffi, oil, energy, rare earth minerals, wars around the world
@@ -21,7 +22,7 @@ The conversations via the biotechnology say that this is
 - potential war outbreaks in east africa
 - internet of bodies
 - people's minds seem to be allowing robotic manipulation
-- memory scans of people's lives
+- memory scans of brains to examine people's lives
 
 A vagus nerve contraption seems to be in my body and is torturing me.  My teeth have now started discoloring.  It may use nanotechnology that you may be familiar with.
 
