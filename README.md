@@ -11,7 +11,7 @@ The conversations via the biotechnology say that this is
 - african union coverup for someone they deem more powerful
 - a global coverup for intelligence communities and hedge funds who stole my stock screener
 - related to global syndicates for decades
-- related to kenyan secret service and their tribalistic and cultic crimes
+- related to kenyan secret service 
 - related to kabalistic jews
 - gender, gene and sexuality modifications in people via food, medicine, and biofrequency modulation
 - technosorcery related to kabalistic beliefs
@@ -21,6 +21,7 @@ The conversations via the biotechnology say that this is
 - corporate experiments and assasinations on unknowing employees
 - state department
 - potential war outbreaks in east africa
+- tribalistic and cultic crimes especially to taita and coastal tribes
 - internet of bodies
 - people's minds seem to be allowing robotic manipulation
 - memory scans of brains to examine people's lives
