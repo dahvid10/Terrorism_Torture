@@ -13,7 +13,8 @@ The conversations via the biotechnology say that this is
 - related to global syndicates for decades
 - related to kenyan secret service and their tribalistic and cultic crimes
 - related to kabalistic jews
-- gender, gene and sexuality modifications in people via food, medicine, and biofrequency modulation (technosorcery in kabalistic beliefs)  
+- gender, gene and sexuality modifications in people via food, medicine, and biofrequency modulation
+- technosorcery related to kabalistic beliefs
 - especially related to the covid vaccine
 - a boss who stalked me while at bp
 - benghazi, ghadaffi, oil, energy, rare earth minerals, wars around the world
