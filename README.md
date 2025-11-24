@@ -25,6 +25,7 @@ The conversations via the biotechnology say that this is
 - internet of bodies
 - people's minds seem to be allowing robotic manipulation
 - memory scans of brains to examine people's lives
+- challennging traditional norms in sexuality especially in east africa 
 
 A vagus nerve contraption seems to be in my body and is torturing me.  My teeth have now started discoloring.  It may use nanotechnology that you may be familiar with.
 
